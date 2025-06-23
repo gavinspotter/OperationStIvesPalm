@@ -2,3 +2,7 @@
 ![God of Justice](/JotPOperationSaintIvesKingBee.JPG)
 ![God of Justice](/JotPGavinPotterLawsuitBillionairePurple.JPG)
 ![God of Justice](/JotPAgeDiscriminationLawSuit.JPG)
+![God of Justice](/Embezzlement.JPG)
+![God of Justice](/AntoninScaliaJustice.JPG)
+![God of Justice](/DebentureList.JPG)
+![God of Justice](/AntoninScaliaIfThenEnterpriseEvidence.JPG)
